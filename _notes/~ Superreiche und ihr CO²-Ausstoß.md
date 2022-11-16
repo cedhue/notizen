@@ -1,0 +1,1 @@
+"Die Superyacht von Roman Abramowitch stößt in einem Jahr so viel CO² aus, wie ich in 13700 Jahren."
